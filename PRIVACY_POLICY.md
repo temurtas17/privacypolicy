@@ -1,6 +1,6 @@
 # Privacy Policy for Memory Game
 
-Last updated: [Current Date]
+Last updated: 2025.03.03
 
 ## Introduction
 
